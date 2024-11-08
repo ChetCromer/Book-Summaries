@@ -1,5 +1,7 @@
 # The Subtle Art of Not Giving a Fuck
 
+https://www.amazon.com/Subtle-Art-Not-Giving-Counterintuitive/dp/0062457713
+
 **Summary of *The Subtle Art of Not Giving a F*ck* by Mark Manson (500 words)**
 
 *The Subtle Art of Not Giving a F*ck* by Mark Manson is a refreshing, brutally honest take on personal development. In a world obsessed with positivity and self-improvement, Manson challenges conventional wisdom by advocating that we should carefully choose what we care about and stop giving too much importance to things that don’t matter.
