@@ -2,6 +2,8 @@
 
 **Summary of *Run with the Horses* by Eugene H. Peterson (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/51UGcSH0krL._SL250_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Run with the Horses* by Eugene H. Peterson is a powerful reflection on the life of the biblical prophet Jeremiah, focusing on what it means to live a fully engaged, purposeful life of faith. Peterson invites readers to break away from mediocrity and embrace a life of courage, faith, and spiritual integrity, challenging them to "run with the horses" — a metaphor for living a bold and passionate life that reflects a deep relationship with God.
 
 The book uses the life of Jeremiah as a template for understanding how to live faithfully in the midst of struggle and opposition. Jeremiah’s life was filled with hardship; he faced rejection, persecution, and loneliness, yet remained committed to God’s calling. Through this narrative, Peterson explores themes of perseverance, trust, and the importance of staying true to one’s mission, even when faced with discouragement.
