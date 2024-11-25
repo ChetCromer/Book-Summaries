@@ -2,6 +2,9 @@
 
 **Summary of *The Courage to Be Disliked* by Ichiro Kishimi and Fumitake Koga (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/518GY1vDoBL._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
+
 *The Courage to Be Disliked* by Ichiro Kishimi and Fumitake Koga is a philosophical self-help book based on the principles of Alfred Adler’s psychology, particularly focused on the idea of personal freedom and self-empowerment. The book is structured as a dialogue between a philosopher and a young man, where the philosopher challenges common assumptions about happiness, relationships, and how to live a fulfilling life.
 
 The central message of the book is that people are not determined by their past, traumas, or circumstances. Instead, we are in control of our own lives and can choose how we interpret and respond to our experiences. The philosopher argues that much of human suffering is self-imposed, often stemming from a desire for approval or the need to meet others' expectations. To live a fulfilled life, one must develop the “courage to be disliked,” meaning the ability to live according to one’s own values without being swayed by others’ opinions or judgments.

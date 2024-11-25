@@ -2,6 +2,8 @@
 
 **Summary of *Rocket Fuel: The One Essential Combination That Will Get You More of What You Want from Your Business* by Gino Wickman and Mark C. Winters (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/51DI0-9PJWL._SL250_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Rocket Fuel* by Gino Wickman and Mark C. Winters explores the essential dynamics that drive successful entrepreneurial ventures by focusing on the relationship between two pivotal roles in any organization: the Visionary and the Integrator. The book argues that these two roles, though distinct and often characterized by opposing traits, are critical for achieving growth and sustainability in business. 
 
 Wickman and Winters begin by defining the Visionary as the creative force behind a business—those who generate innovative ideas, set the overall direction, and inspire teams with their big-picture thinking. Visionaries are often dreamers and strategists, driven by passion and a desire to create change. However, they may struggle with implementation, operational details, and day-to-day management, often leading to chaos and inefficiency if left unchecked.

@@ -2,6 +2,8 @@
 
 **Summary of *The 7 Habits of Highly Effective People* by Stephen R. Covey (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/51OuvCFwyZL._SL250_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *The 7 Habits of Highly Effective People* by Stephen R. Covey is a seminal self-help book that focuses on personal and professional effectiveness. Covey introduces seven core habits that, when practiced consistently, enable individuals to achieve meaningful and sustainable success. These habits are not just techniques for quick fixes but are rooted in deep principles of fairness, integrity, and human dignity.
 
 Covey begins by addressing the concept of a "paradigm shift," which refers to changing the way we perceive the world and ourselves. He emphasizes that long-lasting success is achieved not by working on the external aspects of life but by cultivating strong internal principles. To do this, Covey presents seven habits that move individuals from dependence to independence, and eventually to interdependence, the highest level of maturity.

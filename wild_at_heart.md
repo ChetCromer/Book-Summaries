@@ -2,6 +2,8 @@
 
 **Summary of *Wild at Heart: Discovering the Secret of a Man's Soul* by John Eldredge (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/51-kdGl5JoS._SL250_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Wild at Heart* by John Eldredge is a compelling exploration of masculinity and the intrinsic desires of the male spirit. Eldredge seeks to challenge conventional notions of what it means to be a man, emphasizing that men are inherently wild, adventurous, and in need of a purpose that aligns with their deep-seated desires. Through personal anecdotes, biblical references, and psychological insights, he aims to help men reclaim their masculine identity and find true fulfillment in life.
 
 Eldredge begins by addressing the cultural narrative surrounding masculinity, which often portrays men as emotionless providers or detached figures. He argues that this limiting view neglects the fundamental aspects of a man’s soul—his desire for adventure, challenge, and deep connection with God and others. According to Eldredge, every man has a heart that longs for three primary things: a battle to fight, an adventure to live, and a beauty to rescue. These elements reflect the wildness inherent in men and are crucial to their sense of purpose and fulfillment.

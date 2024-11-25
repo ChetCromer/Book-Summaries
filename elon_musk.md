@@ -2,6 +2,8 @@
 
 **Summary of *Elon Musk* by Walter Isaacson (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/519diyDo0ML._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Elon Musk* by Walter Isaacson is a comprehensive biography that delves into the life, personality, and career of one of the most influential and controversial figures of the 21st century. Isaacson, known for his insightful biographies of figures like Steve Jobs and Albert Einstein, offers a detailed account of Musk’s childhood, career trajectory, and personal struggles. The book presents Musk as a visionary entrepreneur with an intense drive to push the boundaries of technology, but also someone who is often difficult to work with due to his demanding and sometimes erratic behavior.
 
 The biography begins with Musk’s early life in South Africa, where he was raised in a challenging household, often feeling isolated and misunderstood. Isaacson explores how Musk’s relationship with his father, Errol Musk, a complex and often troubled figure, shaped his personality and fueled his desire for independence. Musk’s early fascination with science fiction and space exploration also plays a critical role in his development as an innovator.

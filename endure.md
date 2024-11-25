@@ -2,6 +2,8 @@
 
 **Summary of *Engure* by Richard Hutchinson (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/51+AE8W600L._SL250_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Engure* by Richard Hutchinson is a profound exploration of the connection between humans and nature, specifically focusing on the unique ecosystem of Engure, a small coastal village in Latvia. The book intricately weaves together personal narratives, ecological insights, and historical context to highlight the significance of this area, not only as a habitat for diverse wildlife but also as a representation of human resilience and the intricate balance between development and preservation.
 
 Hutchinson begins by introducing Engure as a microcosm of broader environmental themes. The village is surrounded by a rich landscape of forests, wetlands, and the Baltic Sea, making it an ideal setting to study biodiversity. The author vividly describes the local flora and fauna, emphasizing the importance of these ecosystems in maintaining ecological balance. Throughout the narrative, Hutchinson showcases various species, particularly birds, that thrive in the area, painting a picture of the vibrant life that exists in harmony with the natural world.

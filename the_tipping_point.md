@@ -2,6 +2,8 @@
 
 **Summary of *The Tipping Point* by Malcolm Gladwell (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/41qNVTp-k8L._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *The Tipping Point: How Little Things Can Make a Big Difference* by Malcolm Gladwell is a compelling exploration of how small actions, events, or trends can create a significant impact and lead to major social changes. Gladwell describes the “tipping point” as the moment when an idea, product, or behavior reaches a critical mass, rapidly spreading and becoming widely popular or influential. The book is built on the notion that social epidemics—whether fashion trends, viral marketing, or public health crises—operate much like infectious diseases, spreading quickly and unexpectedly once they hit this tipping point.
 
 Gladwell identifies three key factors that contribute to tipping points: **The Law of the Few**, **The Stickiness Factor**, and **The Power of Context**. 

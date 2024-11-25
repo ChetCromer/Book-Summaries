@@ -2,6 +2,8 @@
 
 **Summary of *Surprised by Doubt* by Alister McGrath**
 
+<img src="https://m.media-amazon.com/images/I/41Ob7DwPrlL._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *"Surprised by Doubt: Searching for Meaning in a Skeptical Age"* by Alister McGrath is a reflective and deeply personal exploration of doubt and faith in the context of the Christian experience. McGrath, a renowned theologian and apologist, addresses the pervasive doubts that often accompany faith and spirituality, offering a thoughtful, intellectual, and compassionate response to the challenges of belief in a skeptical world. The book draws upon McGrath’s own journey from skepticism to Christian faith, as well as his academic work in theology, science, and the philosophy of religion.
 
 The central thesis of *Surprised by Doubt* is that doubt, rather than being the enemy of faith, can be an integral part of a robust and mature spiritual life. McGrath emphasizes that doubt is not necessarily a sign of weakness or lack of faith but rather an opportunity for growth, self-examination, and deeper understanding. He contends that faith is not the absence of doubt but the engagement with it—an ongoing process of wrestling with difficult questions, uncertainties, and the complexities of life.

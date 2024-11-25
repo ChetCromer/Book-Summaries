@@ -2,6 +2,8 @@
 
 **Summary of *Thou Shalt Prosper* by Rabbi Daniel Lapin**
 
+<img src="https://m.media-amazon.com/images/I/41MywoSYiRL._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *"Thou Shalt Prosper: Ten Commandments for Making Money"* by Rabbi Daniel Lapin is a book that combines Jewish wisdom with practical advice on how to achieve financial success. Lapin’s premise is that wealth and prosperity are not only attainable but are morally positive pursuits when approached in accordance with time-tested principles. Drawing from ancient Jewish traditions, Lapin emphasizes the importance of creating value in society, honoring the divine nature of money, and embracing a mindset that sees prosperity as a vehicle for good in the world. He lays out a set of "commandments" that serve as guiding principles for both spiritual and material wealth.
 
 The central thesis of the book is that money is not inherently evil but a tool that can be used for noble purposes, and the pursuit of wealth can be aligned with personal growth, generosity, and contributing to the greater good. Lapin also challenges common modern misconceptions about money, arguing that financial success is not the result of luck or exploitation but of hard work, honesty, and a moral approach to business. Through stories, parables, and personal anecdotes, Lapin offers practical advice on how to build a prosperous life while staying true to one’s values.

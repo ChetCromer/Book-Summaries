@@ -2,6 +2,8 @@
 
 **Summary of *Slow Productivity* by Julian D. K. Meyer (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/613KQRM2VOL._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Slow Productivity* by Julian D. K. Meyer presents a transformative approach to work and productivity, challenging the traditional hustle culture that equates busyness with success. In a world that often prioritizes speed, efficiency, and constant availability, Meyer argues for a shift towards a more thoughtful, intentional, and sustainable way of working. The book explores the concept of "slow productivity" as a means to enhance creativity, well-being, and overall life satisfaction.
 
 Meyer opens by acknowledging the pressures of modern work life, where many individuals feel compelled to work long hours and juggle multiple tasks simultaneously. This relentless pace can lead to burnout, decreased quality of work, and a lack of fulfillment. In contrast, *Slow Productivity* advocates for a mindset that values depth over breadth, encouraging readers to focus on fewer tasks but with greater intention and quality. Meyer emphasizes that productivity should not just be about completing tasks, but about aligning work with personal values and goals.

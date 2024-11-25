@@ -2,6 +2,8 @@
 
 **Summary of *Where the Conflict Really Lies: Science, Religion, and Naturalism* by Alvin Plantinga**
 
+<img src="https://m.media-amazon.com/images/I/41CTgvEZlfL._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Where the Conflict Really Lies: Science, Religion, and Naturalism* by philosopher Alvin Plantinga is a compelling exploration of the relationship between science, religion, and naturalism, which addresses the alleged conflict between faith and reason, particularly in the context of evolution and the scientific worldview. Plantinga, one of the most influential contemporary philosophers of religion, argues that the supposed conflict between science and religion—often presented as an irreconcilable tension—has been misunderstood, and that the real conflict lies not between science and religion, but between naturalism (the philosophical belief that natural phenomena are all that exist) and science.
 
 The central argument of *Where the Conflict Really Lies* is that the conflict is not between science and religion, as commonly thought, but between naturalism and the scientific enterprise itself. Plantinga critiques the naturalistic worldview, which asserts that only natural explanations can account for the world, and shows that naturalism is at odds with key elements of modern science, such as the reliability of human cognition and the objectivity of scientific inquiry. He points out that naturalism, in its extreme form, undermines the very foundations upon which science rests. For instance, if human cognitive faculties are the result of blind, unguided evolution, then it’s difficult to trust those faculties in discerning truth, including scientific truth.

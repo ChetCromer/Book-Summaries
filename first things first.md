@@ -2,6 +2,8 @@
 
 **Summary of *First Things First* by Stephen R. Covey, A. Roger Merrill, and Rebecca R. Merrill (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/511RPc3Gh5L._SL250_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *First Things First* by Stephen R. Covey, along with co-authors A. Roger Merrill and Rebecca R. Merrill, is a comprehensive guide on time management that challenges traditional methods of organizing time and priorities. The book is a follow-up to Covey’s *The 7 Habits of Highly Effective People* and expands on the third habit: "Put First Things First." It shifts the focus from mere efficiency to true effectiveness, emphasizing the importance of aligning daily actions with long-term values and goals.
 
 The core idea of *First Things First* is that most time management systems are based on urgency and efficiency, where people focus on completing as many tasks as possible in the least amount of time. Covey and the Merrills argue that this approach often leads to burnout and a lack of true fulfillment. Instead, the authors advocate for a value-based approach to time management, where individuals focus on what is truly important—those activities that contribute to their long-term vision and purpose.

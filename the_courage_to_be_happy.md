@@ -2,6 +2,8 @@
 
 **Summary of *The Courage to Be Happy* by Ichiro Kishimi and Fumitake Koga (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/41mDi5+BF2L._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *The Courage to Be Happy* by Ichiro Kishimi and Fumitake Koga is a sequel to their bestseller *The Courage to Be Disliked*. Like the first book, it presents a dialogue between a philosopher and a young man, exploring the ideas of Alfred Adler's psychological philosophy. While *The Courage to Be Disliked* focused on letting go of others’ judgments and embracing freedom, this book delves deeper into the pursuit of happiness, emphasizing that happiness is a choice and requires courage.
 
 The central message of the book is that happiness does not come from external circumstances or achievements but from choosing to live a life based on personal values and contributing to others. The philosopher argues that happiness is attainable for everyone, but many people avoid it because it requires taking responsibility for their own lives and facing challenges head-on. True happiness is not found in the pursuit of pleasure or success but in finding meaning through relationships and community.

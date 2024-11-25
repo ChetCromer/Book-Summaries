@@ -2,6 +2,8 @@
 
 **Summary of *Atomic Habits* by James Clear (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/513Y5o-DYtL._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Atomic Habits* by James Clear is a groundbreaking guide that emphasizes the power of small, incremental changes in creating significant transformations in our lives. Clear’s central premise is that tiny habits, when consistently practiced, can lead to remarkable results over time. He argues that rather than focusing on lofty goals, individuals should concentrate on building systems of good habits that will naturally lead to the desired outcomes.
 
 The book is structured around the four laws of behavior change, which serve as a framework for developing good habits and breaking bad ones. Clear begins by emphasizing the importance of identity in habit formation. He asserts that true behavior change is identity change; instead of merely aiming to achieve a specific outcome, one should focus on becoming the type of person who embodies those desired habits. For instance, instead of saying “I want to run a marathon,” one should think, “I am a runner.”

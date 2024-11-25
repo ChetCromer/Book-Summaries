@@ -2,6 +2,8 @@
 
 **Summary of *Mastering the Rockefeller Habits* by Verne Harnish (500 words)**
 
+<img src="https://m.media-amazon.com/images/I/51O8KjYM6nL._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *Mastering the Rockefeller Habits* by Verne Harnish is a practical, strategy-oriented guide for entrepreneurs and business leaders, designed to help them scale their companies effectively. Drawing inspiration from John D. Rockefeller’s methods for building Standard Oil into a global powerhouse, Harnish distills these practices into habits that modern businesses can adopt to drive sustained growth and operational excellence.
 
 The core of Harnish's book centers around three key concepts: priorities, data, and rhythm. First, Harnish emphasizes the importance of setting clear, actionable priorities for the company at every level. Without focused goals, businesses can become inefficient, chasing too many objectives simultaneously. He advocates for establishing a single, overarching company priority, supported by secondary priorities that align with it. This ensures that all efforts are synchronized toward the same target.

@@ -2,6 +2,8 @@
 
 **Summary of *How to Work with Almost Anyone* by Lucy Gill**
 
+<img src="https://m.media-amazon.com/images/I/41f7nAAjFqL._SL500_.jpg" style="float:right;width:33%; padding-left:20px; padding-bottom:20px;"/>
+
 *"How to Work with Almost Anyone: 8 Keys to Building Strong Working Relationships"* by Lucy Gill is a practical and insightful guide to navigating the complexities of workplace relationships. Gill, a business consultant and organizational behavior expert, focuses on helping professionals build productive and harmonious relationships with colleagues, supervisors, and clients, even in challenging or high-stress work environments. The book provides actionable strategies for enhancing communication, resolving conflicts, and creating a positive and collaborative atmosphere.
 
 The central premise of *How to Work with Almost Anyone* is that no matter how different personalities and work styles may seem, it is always possible to find common ground and develop mutually beneficial relationships. Gill identifies eight key principles or "keys" that are essential to successfully working with others, including emotional intelligence, empathy, active listening, and conflict resolution. By adopting these strategies, individuals can overcome common interpersonal challenges, strengthen teamwork, and increase their overall effectiveness at work.
